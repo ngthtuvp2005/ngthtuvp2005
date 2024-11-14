@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning java and python.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: Link facebook https://www.facebook.com/profile.php?id=100082992725730
+                      Discord name: Tú_SadBoiz@_@
 - 😄 Pronouns: Sadboiz@_@
 - ⚡ Fun fact: Cat is very cute :3 
 
