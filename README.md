@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ngthtuvp2005
 - 👀 I’m interested in rhythm games and coding.
-- 🌱 I’m currently learning java and python.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: Link facebook https://www.facebook.com/profile.php?id=100082992725730
                       Discord name: Tú_SadBoiz@_@
